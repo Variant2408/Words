@@ -7,4 +7,9 @@
 6. unpleasant: unfriendly; not polite( There’s no need to be unpleasant; we can discuss this in a friendly way.)|| causing you to have a bad feeling; not nice(This news has come as an unpleasant surprise)
 7. fraught: 
 (used about people) worried and nervous; (used about a situation) very busy so that people become nervous (Things are usually fraught at work on Mondays)
-8.
+8.conundrum: a confusing and difficult problem or question.
+9.discourse: a long and serious discussion of a subject in speech or writing
+10. peddled: to go from place to place selling something
+11. stance: the opinions that somebody expresses publicly about something
+12. 
+
