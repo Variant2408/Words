@@ -11,5 +11,6 @@
 9.discourse: a long and serious discussion of a subject in speech or writing
 10. peddled: to go from place to place selling something
 11. stance: the opinions that somebody expresses publicly about something
-12. 
+12. metaphor: a word or phrase that is used in an imaginative way to show that somebody/something has the same qualities as another thing. ‘Her words were a knife in his heart’ is a metaphor
+13. 
 
