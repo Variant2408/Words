@@ -12,5 +12,5 @@
 10. peddled: to go from place to place selling something
 11. stance: the opinions that somebody expresses publicly about something
 12. metaphor: a word or phrase that is used in an imaginative way to show that somebody/something has the same qualities as another thing. ‘Her words were a knife in his heart’ is a metaphor
-13. 
+13. erratic: (सनकी)(used about a person’s behaviour, or about the quality of something) changing without reason; that you can never be sure of(Ravi is a talented player but he’s very erratic [sometimes he plays well, sometimes badly])
 
