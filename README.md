@@ -33,5 +33,7 @@
 31. **Amid:** in the middle of," "surrounded by," or "among
 32. **purge:** the act of removing something undesirable or harmful
 33. **rid:** to make yourself/somebody/something free from somebody/something that is unpleasant or not wanted
-34. 
+34. ripple
+35. fragile
+36. 
 
