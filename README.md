@@ -35,5 +35,7 @@
 33. **rid:** to make yourself/somebody/something free from somebody/something that is unpleasant or not wanted
 34. ripple
 35. fragile
-36. 
+36. reckon
+37. barista
+38. 
 
